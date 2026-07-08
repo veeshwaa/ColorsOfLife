@@ -14,8 +14,8 @@
 | 2015-2018 | 38-41 | Kolkata NGO, Yellow Envelope, Rehman imagination | Yellow Envelope |
 | 2018-2023 | 41-46 | Parent NGO "Punarjeevan" (Sarita's, AIDS rehabilitation) grows to 20k+ crore worldwide branches; Vikram's own separate venture "Ummed" (created with alter-ego Rehman) reaches 7600cr | Green Lawn |
 | 2023-2027 | 46-50 | Leaves NGO, becomes Budha Baba | Colorless Tears |
-| 2018 (incident) | ~50-52 | Hospital accident as Budha Baba | Frame Story |
-| 2027 (narration) | - | Adarsh (72) writes the story | Present |
+| 2018 (incident) | ~41 | Hospital accident as Budha Baba | Frame Story |
+| 2027 (narration) | - | Adarsh (~50) writes the story | Present |
 
 ---
 
@@ -572,7 +572,7 @@
 
 # NARRATIVE STRUCTURE:
 
-- **Frame**: 2027, Adarsh (72) writing
+- **Frame**: 2027, Adarsh (~50, mid-aged doctor) writing
 - **Present**: 2018 hospital incident
 - **Flashbacks**: 1995 college, 2007 business, NGO years, Budha Baba phase
 - **POV**: First person (Adarsh), but he reconstructs scenes he didn't witness

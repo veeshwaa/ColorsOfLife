@@ -33,7 +33,7 @@
 - [ ] Am I falling into "essay mode" (explaining feelings instead of showing)?
 - [ ] Are there any boring, flat, "connecting" sentences that serve only to move plot?
 - [ ] Could ANY sentence be deleted without losing emotional impact?
-- [ ] Read aloud: Does it sound like a 72-year-old doctor remembering, or like AI writing?
+- [ ] Read aloud: Does it sound like a ~50-year-old doctor remembering, or like AI writing?
 
 ### Narrative Sequence (From STYLE.md)
 - [ ] **Camera first** - What do readers SEE before knowing what it means?
@@ -73,7 +73,7 @@ Examples from existing text:
 - "I asked to give blood. I never said I could" (reveals character instantly)
 - 15 people volunteer after AIDS reveal (emotional reversal)
 - "Vicky? That's a dog's name!" (humor + cruelty)
-- Vicky's mother reveal: "Lost her... never seen... anyway manageable" (vulnerability + strength in 10 words)
+- Vicky's mother reveal: eyes go wet for one second — then he picks up the scalpel and checks its edge against the light. Scene moves. No dialogue. (NOTE: "anyway manageable" was author's planning instruction to the agent, NOT Vikram's dialogue — do not use it as a quote.)
 
 **Check each block:**
 - [ ] Where is the surprising detail that makes readers pause?
@@ -330,7 +330,7 @@ Biswa's voice is: **Lived experience, not written prose.**
 1. **Short power lines**: "Just enough to hurt"
 2. **Action reveals character**: Removing slippers so old man doesn't look odd
 3. **Dialogue punch**: "I asked to give blood. I never said I could"
-4. **Vulnerability + immediate control**: "Lost her... never seen... anyway manageable"
+4. **Vulnerability without words**: eyes go wet — then scalpel picked up immediately, edge checked against light. Scene moves. ("anyway manageable" was author's planning note to agent, NOT character dialogue — never quote it)
 5. **Crowd as character**: 15 specific people volunteer (flower seller, postman, etc.)
 6. **Humor in pain**: "Vicky? That's a dog's name!"
 7. **Objects over words**: Walking stick, Nokia phone, steel tiffin, mother's stitching

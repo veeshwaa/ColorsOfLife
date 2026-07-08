@@ -75,9 +75,15 @@ Dr. Adarsh Tripathy
 
 Age
 
-Approximately 72 years.
+Approximately 50 years.
 
-The narrator looks back upon several decades.
+(Born around 1976/1977, same generation as Vikram. Both were college batchmates in 1995-1996. Narration year is 2027, making Adarsh approximately 50 years old — not 72. This is a previously locked error now corrected by the author.)
+
+Adarsh looks mid-aged. He does not look old.
+Vikram looks older than he is — lean, thin, white-bearded, saint-like from years of living simply.
+This visual contrast is deliberate and emotionally important.
+
+The narrator looks back upon three decades.
 
 Past events are revealed gradually.
 
@@ -149,7 +155,7 @@ No decorative characters.
 
 # Locked Story Facts
 
-Vikram and Adarsh first meet during engineering college.
+Vikram and Adarsh first meet during medical college (MBBS, First Year, 1995).
 
 The chemistry apron establishes their first connection.
 
