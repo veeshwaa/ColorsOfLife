@@ -1037,3 +1037,549 @@ One extra letter. For a man who spent twenty years trying not to be in his broth
 
 [END OF ADD-08]
 
+---
+
+### ADD-09 â€” THE LOCAL JOURNALIST (Ch3 â€” insert during land struggle, after Reddy's first meeting)
+
+The journalist from the Kurnool District Weekly arrived on a Thursday. Her name was Meenakshi Rao, perhaps twenty-five, with a spiral notebook and the focused manner of someone sent to cover something she does not entirely believe is a story.
+
+She sat. She opened her notebook.
+
+"What do you eat for breakfast?" she asked.
+
+Vikram looked at her. "Two rotis. Sometimes idli if Ramanna's wife has made it."
+
+She wrote this down. She asked: exercise, sleep hours, height, family history of diabetes. She wrote everything. She asked nothing about the factory, the land dispute, the environmental assessment, or the employment projections.
+
+She thanked him and left.
+
+The article appeared the following Friday: *"Calcutta Businessman Has Disciplined Morning Routine, Believes in Simple Food."* The factory appeared in one sentence.
+
+The minister's office, which read all local press, saw it on Saturday. Called on Monday. The land file began moving.
+
+Vikram kept the clipping. He put it in the same folder as the three-year environmental impact assessment, the geological survey, and the structural plans â€” the least significant document in the folder, and the only one that had worked.
+
+He showed it to Reddy at their next meeting. Reddy read the headline. Read the article. Read the headline again.
+
+He poured himself a whiskey without offering one to Vikram, which was what Reddy did when he was thinking.
+
+"She asked you about breakfast," Reddy said.
+
+"Yes."
+
+"And the file moved."
+
+"Yes."
+
+Reddy drank. He set the glass down. "This is the thing about this state. It operates by logics that are not written anywhere. You can read every regulation. None of it will tell you that a journalist asking about rotis will unlock a land file that three lawyers could not move in two years."
+
+Vikram said nothing. He agreed.
+
+Reddy kept the clipping when Vikram left. He put it in his desk drawer. He had kept stranger things.
+
+**EMOTION TWIST:** Comedy of the absurd â€” but the sadness is that Vikram's years of documentation, surveys, and genuine effort counted for less than breakfast habits in a local weekly. He does not find this bitter. He finds it accurate. That is more unsettling than bitterness.
+
+---
+
+### ADD-10 â€” THE SPIDER IN THE CHAIR (Ch3 â€” insert after factory is stable)
+
+The spider arrived on a Wednesday night. By Thursday morning she had built a web in the cracked left armrest of the brown chair â€” triangular, three anchor points, a central spiral of considerable ambition. A serious piece of work.
+
+Suresh noticed it when he brought tea. "Sir. There is a spider."
+
+"In the armrest," Vikram said. "Not in the chair."
+
+"What will visitors think, sir?"
+
+Vikram looked at the web. At the spider at its center, still.
+
+"She built that while we were all at home sleeping," he said. "That is more than we did last night."
+
+He sat in the chair on the right side. He read his documents. He drank his tea. He left the left armrest entirely undisturbed.
+
+The spider stayed eleven days.
+
+On the twelfth morning she was gone. The web remained, intact, every thread still holding.
+
+Suresh waited two more days. Then he removed the web using a folded piece of paper, moving it carefully â€” not destroying the shape, just relocating it to the bin. He told nobody about the paper. He stood at the bin for a moment afterward, looking at where he had dropped it, thinking something he didn't have words for.
+
+He went back to his desk. He entered the quarterly figures with his usual precision.
+
+**EMOTION TWIST:** This is comedy (eccentric boss refuses pest control, respects spider) but inside it is a small meditation on what gets built while no one is watching, and how carefully Suresh â€” who filed Vikram under "eccentric" â€” handles the evidence of that building, even after the builder is gone.
+
+---
+
+### ADD-11 â€” REDDY'S APOLOGY DINNER (Ch3 â€” before Vikram leaves Nandyal)
+
+Grand Regency, Hyderabad. High ceilings, wine list, tablecloths changed between courses. The kind of restaurant where serious things are discussed in settings so comfortable that nothing has to feel serious.
+
+First whiskey: with starters. Second: main course. Third:
+
+"I was wrong about you," Reddy said.
+
+Vikram waited.
+
+"When you first came. I thought you were a Calcutta boy. Money but no sense. The kind who comes for six months, causes problems, goes home." He paused. "I was wrong. You stayed. You dealt with the municipality. You fixed the water line yourself." He looked at his glass. "That is not something a Calcutta boy does. That is something a man does."
+
+He drank.
+
+Fourth whiskey arrived.
+
+"The thing about you, Vikram," Reddy said, leaning slightly forward, his voice the voice of a man arriving at a sentence he has been building toward all evening, "is that you neverâ€”"
+
+His chin dropped. His eyes closed. He was asleep.
+
+Not dramatically. Just the quiet subsidence of a man whose body had waited for a pause in the conversation and taken it. His hand remained on the glass.
+
+Vikram called the driver. Paid both covers. Went back to his hotel.
+
+---
+
+He never found out how the sentence ended.
+
+Years later, in the hospital corridor, when Adarsh asked who Vikram Ahuja was â€” Vikram, from the bed, with his eyes still closed, quietly finished the sentence himself, as a guess:
+
+*"...you never needed anyone to finish."*
+
+He didn't know if that was right. He didn't say it aloud. He just thought it, in the corridor quiet, while Adarsh sat in the chair beside the bed.
+
+**EMOTION TWIST:** Comedy (drunk Reddy falls asleep mid-apology) + the deepest sadness (an unfinished sentence that defined a man, spoken by that man to himself thirty years later in a hospital bed).
+
+---
+
+### ADD-12 â€” THE LEAKING ROOF (Ch4 â€” first weeks at shelter)
+
+The tarpaulin lasted twelve seconds on the roof.
+
+Then it slid, gathered speed, folded itself, and dropped through the back room window onto the bed of the patient sleeping beneath it â€” a man named Govinda, four years at the shelter, who had seen a substantial variety of unexpected things.
+
+Govinda pushed the tarpaulin off his chest. He turned onto his other side. He continued sleeping.
+
+Sarita appeared at the back door. She looked at the window. At Govinda. At Vikram.
+
+"We usually just put another bucket," she said. She went back inside.
+
+Vikram found the buckets and positioned them correctly. The first time in fifteen years he had been physically incompetent at something with zero stakes. He noticed he didn't mind.
+
+---
+
+Three weeks later, Govinda had a lucid afternoon. He was sitting on the verandah. Vikram sat near him.
+
+"Your tarpaulin," Govinda said.
+
+Vikram looked at him.
+
+"It woke me up. When it came through the window. I hadn't properly woken up in six weeks." He looked at the neem tree. "For a moment I was completely awake. I knew where I was. I knew what day it was." He paused. "Six weeks I had not known what day it was."
+
+He went back to looking at the courtyard.
+
+Vikram sat with this information. He turned it over: simultaneously funny and not funny at all, in a ratio he could not find the exact measurement of.
+
+**EMOTION TWIST:** Comedy (spectacular incompetence with tarpaulin) + sudden, quiet devastation (a man who hadn't been awake for six weeks, and what woke him was an accidental mistake). The joke becomes the most important thing Vikram accidentally did at the shelter.
+
+---
+
+### ADD-13 â€” THE BYPASS MARKET LESSON (Ch4)
+
+Vikram paid first price for everything.
+
+Ananya discovered this on a Friday, watching from the verandah steps with the expression of a surgeon watching someone use a hammer for neurosurgery.
+
+She walked over. "You're paying first price."
+
+"Yes."
+
+"Then why?"
+
+"I'm not comfortable arguing about five rupees."
+
+She looked at him for a long moment. "Come tomorrow."
+
+---
+
+She stood beside him at the next Friday market. When he picked up spinach, she said: "Walk." He walked two steps. The vendor said: "Thirty rupees." She said: "Say forty." He said forty. The vendor said thirty-five. He said thirty-five. He paid thirty-five.
+
+Walking back: "I still feel bad."
+
+"About the five rupees?"
+
+"About the negotiation. It feels like I'm cheating him."
+
+She shifted the spinach to her other arm. "He put the five rupees in his first price. It's not your five rupees until you ask for it. If you don't ask, you give it to him. If you ask, you keep it." She walked. "The forty rupees were always rude. Only the negotiation made them polite."
+
+---
+
+A week later, alone at the market, he bargained correctly for the first time â€” walked two steps, waited, said twenty, settled at twenty-two.
+
+He looked around the market.
+
+Ananya was not there. She was at the shelter sorting medicine deliveries.
+
+He walked back carrying the methi. He didn't know why he had looked around. He thought about it briefly, then stopped thinking about it.
+
+**EMOTION TWIST:** Teaching comedy (child teaches adult) + tiny melancholy (he bargains correctly and looks for her to notice, and she's not there â€” and he doesn't quite understand why he looked).
+
+---
+
+### ADD-14 â€” THE GOVERNMENT INSPECTOR (Ch4/Ch5 â€” recurring)
+
+The first inspector was S.K. Pillai. Clipboard. Sealed notice. Arrived ten-thirty.
+
+Sarita gave him tea before he opened the clipboard. Not strategy â€” just what you do when someone comes to your house.
+
+He drank it. Asked for a second cup. Sat forty minutes. Left with the notice still sealed.
+
+This happened twice a year for six years. Different inspector each time. Same tea. Same result.
+
+Vikram observed it the third time and asked Sarita: "You give them tea and they leave."
+
+"Where else would they go?" she said. "The office is just another office. Here there is tea, and there are children, and there is a neem tree. A man can only open an official notice in one kind of atmosphere. This is not that atmosphere."
+
+The sixth inspector â€” the young one, fourth year â€” drank his tea, looked at the children, paused at the gate before leaving.
+
+"What do you put in the tea?" he asked sincerely.
+
+"Ginger," Sarita said. "Just ginger."
+
+He nodded. He walked out. He did not close the gate behind him.
+
+Every previous inspector had closed it. Vikram, watching, noticed. He did not close it either. He let it stay open all afternoon.
+
+**EMOTION TWIST:** Absurdist comedy (entire system defeated by ginger tea, six years running) + inside it, something true about how spaces work: some rooms make cruelty impossible, not through argument, but through what they already are.
+
+---
+
+### ADD-15 â€” MITRA BABU THE NEIGHBOR (Ch5 â€” first months in Bagbazar)
+
+Mitra Babu knocked on the door the evening the Punarjeevan sign went up on the gate.
+
+"You are running a call center?"
+
+"No. A health shelter."
+
+"My nephew Tapan needs work. He is computer literate."
+
+"This is not a call center."
+
+"He types fifty words per minute."
+
+"We don't need typing."
+
+"Very sincere boy. Very punctual."
+
+---
+
+Tapan appeared six weeks later with a CV. Ananya explained: health shelter, HIV patients, not call center. He nodded, went home, came back six weeks later with an updated CV.
+
+On his fourth visit, Vikram happened to be in the courtyard. He looked at the CV. "Can you lift things?"
+
+"Yes."
+
+"Medicine delivery, forty cartons, Tuesday. Sort by date and type. Back room. Can you do that?"
+
+"Yes."
+
+He came Tuesday. He sorted forty cartons in two hours with a precision that suggested he had been waiting his whole life for something to sort correctly.
+
+Mitra Babu told the entire lane his nephew joined the IT sector.
+
+Three months later, a note arrived from the college hospital asking if their "logistics coordinator" was available for consultation. Sarita read it at dinner. Tapan took a second serving of rice without looking up.
+
+When anyone asked where he worked, he said: "Punarjeevan." He said it in the tone of someone who has found the answer to a question they had been carrying for some time.
+
+**EMOTION TWIST:** Comedy (persistent neighbor, IT sector delusion) + quiet dignity inside it (Tapan, who was only looking for the right work, finds it in the most unexpected place and simply stays).
+
+---
+
+### ADD-16 â€” REHMAN BREAKS EVERYTHING (Ch5 â€” Rehman's first month)
+
+Day three: kitchen doorknob. Shoulder the door now.
+Day nine: medicine shelf bracket. Fifteen-degree tilt. Medicines stay by collective agreement.
+Day fourteen: tap handle. Pliers left beside it permanently.
+Day twenty-one: window shutter. Off the top hinge at eleven PM. He held it, placed it gently against the wall, went to sleep.
+
+Vikram said nothing about any of them.
+
+Day twenty-two, Sunday: Rehman fixed everything in one afternoon, alone, without being asked. The tap handle, chrome-plated, bought from Shobhabazar crossing. The window shutter sanded and re-hung, closing cleanly now. The shelf level. The door working.
+
+He was reading on the verandah when they returned.
+
+At tea, Vikram said: "The tap is quiet."
+
+"Yes," Rehman said.
+
+They both drank.
+
+Ananya, on the step below with a ledger, looked up at this, then back at her ledger. She made a small mark in the margin. Not a note about accounts. Just a mark, the kind you make when something clicks into place and you want to record the moment without explaining it.
+
+**EMOTION TWIST:** Comedy (new person systematically dismantling house) + inside it, recognition (Vikram sees Rehman's pattern and recognizes himself in it â€” this is how he once operated: break things by accident, fix them better, say nothing). The comedy is a mirror.
+
+---
+
+### ADD-17 â€” THE MATH PROBLEM (Ch5 â€” before Ananya and Rehman become close)
+
+Ananya had been stuck for three days on question seven, chapter twelve: prove the base angles of an isosceles triangle are equal, using a method other than the standard congruence proof.
+
+She was not going to ask Rehman. Data points so far: sorts medicines efficiently, eats without ceremony, fixed four things silently. Not yet a reason to ask for help.
+
+Rehman, passing through, glanced at the textbook. He stopped. Took a pencil stub from his pocket â€” the two-centimeter kind you keep because not wasting things runs deeper than the inconvenience. He wrote one line in the outer margin: two words and a small diagram. Not the answer. The method.
+
+He walked on.
+
+She stared at it. Worked the problem for twenty minutes. It resolved.
+
+The two words were: *fold here.* The method: fold the triangle on its axis of symmetry. One half lies exactly over the other. Base angle equality becomes visible without algebra. The simplest possible approach. She had been treating a spatial problem as an algebraic one.
+
+That evening she made tea â€” measured by the spoon she had been using for four years. She poured two cups. She put one on the step where Rehman sat after dinner. No words.
+
+He sat down. Saw the cup. Drank it.
+
+Two weeks later they were finishing each other's sentences.
+
+The geometry page is still in the correspondence notebook â€” in chapter twelve, marginal note in Rehman's handwriting, small diagram, two words. It migrated from ledger to ledger over the years, tucked like a bookmark, present long after both of them forgot it was there.
+
+**EMOTION TWIST:** Tender (a friendship beginning) + comedy (it begins over an isosceles triangle and two words) + the small sadness that the geometry problem itself â€” the thing that began everything â€” becomes invisible under everything that came after.
+
+---
+
+### ADD-18 â€” THE FOREIGN DONOR VISIT (Ch6)
+
+Hendrik van der Berg, Netherlands, used "feminine hygiene solutions unit" eleven times in forty minutes. The women who ran it called it "pad wali dukaan." Rehman translated between both languages without letting either side know the shapes weren't quite the same.
+
+When Hendrik asked to meet "end beneficiaries," Rehman brought three women from the health camp. The oldest was Kanthamma, seventy-three, who had survived her husband, two floods, one government resettlement scheme, and the specific difficulty of being a woman with no income in a district with strong opinions about that.
+
+Hendrik, through translator: "What does this product mean to you? In your own words."
+
+Kanthamma looked at the pad on the demonstration table. Looked at Hendrik.
+
+"Before this, we used rags. We boiled them and dried them and used them again. Now we don't. What would you like me to add?"
+
+Four seconds of silence.
+
+Hendrik doubled the grant commitment from the car to the airport.
+
+---
+
+In the annual report that year: Kanthamma listed as contributor and community resource person. Hendrik in the acknowledgments.
+
+Rehman had arranged this without telling anyone. Nobody took it out.
+
+That evening, Vikram: "She should have been presenting the proposal."
+
+Rehman: "Next time." He meant it as a plan.
+
+**EMOTION TWIST:** Comedy (development jargon vs. plain truth) + the deepest dignity (Kanthamma's single sentence does more than the entire proposal). The comedy is the gap between language and life. The dignity is that life wins.
+
+---
+
+### ADD-19 â€” VIKRAM AT THE GALA (Ch6)
+
+Two hundred forty guests. Formal wear. Vikram's kurta: pressed under ledgers that morning, slightly wrong creases, white cotton.
+
+He was the only person in cotton.
+
+A French journalist appeared at his elbow within four minutes. She asked if he could bring her sparkling water. He went to the drinks table. He brought back a glass.
+
+She thanked him. He nodded. She asked his name. He said Vikram. She wrote something in her notebook.
+
+He moved to the other side of the room.
+
+---
+
+Her article, two weeks later: *"Among the guests was a quiet man in a white cotton kurta who moved through the ballroom as if he owned it, though from his clothes it was clear that he owned nothing of the kind."*
+
+Rehman framed it. Put it in the office behind the register table. Didn't tell Vikram.
+
+Vikram saw it three weeks later. Stood in front of it. Read it. Said nothing. Went to the courtyard. Came back for tea. Sat with the ledger.
+
+The framed article stayed. Visitors sometimes asked Ananya who the person in the paragraph was. She said: "The one who started this." They nodded as if this explained the cotton kurta. It did.
+
+**EMOTION TWIST:** Comedy (mistaken for waiter) + inside it, the most precise description of Vikram that anyone ever wrote â€” and it was written by a stranger who didn't know who he was. He finds out about it only after Rehman frames it. He has no response. He goes to the courtyard.
+
+---
+
+### ADD-20 â€” SARITA TELLS VIKRAM SHE IS DYING (Ch6 â€” two years before Ch7)
+
+Rice. Dal. Raw mango pickle from Kanthamma's jar, sent up wrapped in newspaper.
+
+"The CD4 count came back yesterday," Sarita said. "The doctor says two years. Possibly a little more if the combination therapy holds."
+
+She spooned dal. She ate.
+
+Vikram looked at his plate. The ceiling fan on low. The house: evening quiet.
+
+"The tap in the back courtyard is dripping again," he said.
+
+"I know. Rehman said he will look at it on Sunday."
+
+They finished dinner. He washed the plates. She dried them and put them on the shelf.
+
+He did not ask: *Are you afraid?*
+
+She did not ask: *What will you do?*
+
+These were questions already answered by nine years in the same house â€” by what they had buried together, by what they had argued about at the municipal office, by the evening when the CD4 count first dropped and they both sat on the verandah step and knew what it meant without saying it.
+
+Some questions are answered by the years between. You do not ask them again.
+
+---
+
+The tap was fixed Sunday.
+
+Monday morning: first time in weeks the back courtyard was completely quiet. No dripping. Just pigeons on the wall, the Bagbazar crossing in the distance, the usual house sounds.
+
+Vikram was in the courtyard when he noticed the quiet. He stood there. He was not thinking about anything particular. He was just aware of the quiet and aware that a specific sound that had been there for weeks was gone.
+
+He went inside and made tea.
+
+**EMOTION TWIST:** Devastation wearing the clothes of an ordinary dinner. The dripping tap and the mango pickle. Two people who say nothing because everything has already been said. The Japanese method: precision as warmth â€” the exact sound of the fan, the exact spoon of dal, the exact quiet on Monday.
+
+---
+
+### ADD-21 â€” ADARSH CALLS ROHAN (Ch7 â€” hospital corridor)
+
+Eleven forty-three. He knew the time from the nurses' station display.
+
+Three calls. Three voicemails.
+
+He spoke to the recording: "Rohan. It's Adarsh. Vikram is here. He's been admitted." A pause. "He looks the same and he looks nothing the same. I thought you should know. I'll be here."
+
+---
+
+Hospital canteen. Cold tea. Glucose biscuits in the glass jar â€” the round ones in individual wrappers, the ones that had been in every institutional setting since the age of six. He bought a packet. Sat at the last table.
+
+The tea went cold. He didn't drink it. The biscuits stayed unopened.
+
+He sat forty minutes.
+
+A hospital orderly collected trays from the neighboring table. He glanced at the unopened biscuits and the cold tea.
+
+"Not eating?"
+
+"They're not for eating," Adarsh said.
+
+The orderly nodded with the equanimity of fifteen years in hospital corridors and moved on.
+
+Adarsh sat. He was forty-eight years old. He had sat in a different canteen thirty years ago, in a different city, during the night Vikram's father was dying, while Vikram sat in the ward â€” and Adarsh had not known what to do with his hands then either.
+
+He put the biscuits in his coat pocket and went back upstairs.
+
+**EMOTION TWIST:** Grief wearing the clothes of absurdism. The orderly accepting "they're not for eating" with complete equanimity â€” because in a hospital, everything irrational sounds rational. Russian gallows humor: the terrible thing accepted as merely inconvenient.
+
+---
+
+### ADD-22 â€” THE SOCIAL WORKER'S MIRACLE (Ch7 â€” Vikram's admission)
+
+Twenty minutes of no response. Name: nothing. Date of birth: nothing. Address: nothing.
+
+Mrs. Bose â€” eleven years, hospital admissions â€” asked the fourth time, in the tone you use when you are not sure if you are speaking to someone or into a space:
+
+"Do you know your name?"
+
+He opened his eyes. Looked at the ceiling.
+
+Then, in a completely even voice: "Vikram Binay Ahuja. Born fourteen March, nineteen sixty-three, Bhubaneswar. Last registered address, twenty-two Sen Lane, Bagbazar, Calcutta seven hundred three."
+
+He continued: "PAN number AMVPA seven-seven-three-six-H. Board registration, Punarjeevan Health Trust, registration number WT-four-four-two-one, Calcutta north district."
+
+He closed his eyes.
+
+Mrs. Bose's pen had not moved. She looked at Adarsh.
+
+"He always remembered numbers," Adarsh said.
+
+She wrote everything. Slowly. Making sure she had it. She reached the final field.
+
+*Occupation.*
+
+"What should I write?"
+
+Adarsh thought about the fourteen hundred crore, the seventy-six hundred crore, the patents, the factory, the three copies submitted to Harilal, the trust registration.
+
+"Write resident," he said.
+
+She wrote: *Resident.*
+
+She collected her clipboard and left with the professional manner of a woman with eleven more forms before the end of her shift.
+
+On the form, in her clear handwriting, in the field marked Occupation: *Resident.*
+
+**EMOTION TWIST:** Awe (a man who gave everything away still has every number memorised) + quiet triumph (after all the crore figures, his official occupation is "resident" â€” and he would have liked that).
+
+---
+
+### ADD-23 â€” ROHAN AT THE BAGBAZAR HOUSE (Ch7 â€” day after)
+
+He did not go to the hospital.
+
+He listened to Adarsh's voicemail three times in the car park at seven in the morning. He did not call back. He drove to Bagbazar.
+
+He parked two streets away and walked to the house. The gate was green, faded. The sign: *Punarjeevan.* He stood at it.
+
+He did not knock.
+
+He opened the gate â€” it moved easily, no resistance, the hinge quiet â€” and sat on the top verandah step.
+
+Two neem trees. A well with no rope. A tap, not dripping.
+
+Sounds from inside: movement, a voice, kitchen sounds. Nobody came out.
+
+Tapan appeared after twenty minutes with two cups of tea. He set one beside Rohan and went back inside.
+
+Red tea. Jaggery. The glass hot.
+
+Rohan held it. He did not drink it. He held it until it went cold, the red darkening slightly in the cooling.
+
+He put the cold glass on the step.
+
+He sat a little longer.
+
+Then he stood, walked to the gate, put his hand on the old metal ring. He pulled it closed â€” carefully, making sure the latch caught.
+
+He walked back to his car.
+
+He thought, the entire drive home, about the wooden door â€” which had not needed to be shouldered open. Which opened easily. Which Vikram had fixed in the first month and which someone had kept in good order since, so that anyone who came would find it opening cleanly, without friction, without resistance.
+
+He thought about this for the entire drive.
+
+**EMOTION TWIST:** Grief â€” the British understatement method. No speech. No apology. A cup of tea held until it goes cold, a gate pulled carefully shut. The emotion is entirely in the things he does with his hands. The drive home is the closest he gets to grief's interior.
+
+---
+
+### ADD-24 â€” THE FOURTH LEG (Ch7 â€” final image)
+
+No dialogue. This section is an image only.
+
+Ananya in an auto, going home. Evening. Long route â€” Ultadanga crossing blocked, which happens most evenings.
+
+On her lap: the three-legged wooden horse. Dark wood, worn smooth where fingers have held it for years. Ramu's nephew made it from a drumstick tree branch, in the Odisha shelter, when she was seventeen. She has carried it since. Four cities. Several bags.
+
+She opens the outer pocket of the bag.
+
+Inside: a small wooden leg, four inches, same grain. Ramu's nephew made all four legs the same day â€” attached three, gave her the fourth separately. "For later," he said, "if she wanted."
+
+She has been carrying it in the pocket ever since.
+
+She puts both pieces on her lap. The horse on the left. The fourth leg on the right. She looks at them.
+
+The auto turns a corner. Evening light through the window moves across the wood.
+
+She does not attach the leg.
+
+She holds both pieces â€” the horse and the leg it was made for â€” side by side. Together. Neither joined.
+
+Outside: the city's evening sounds, lights coming on, traffic, people moving in all their directions.
+
+Inside the auto, on her lap, the horse and its fourth leg.
+
+Both there. Neither joined.
+
+**NO EMOTION TWIST HERE. This is the one image that must hold perfectly still. Any twist breaks the ending.**
+
+---
+
+*END OF ALL ADD SCENES (ADD-01 through ADD-24)*
+*Total new material: approximately 18,000 words*
+*Combined with existing 39,060 = approximately 57,000 words*
+*Remaining gap to 89,000: approximately 32,000 words â€” to be filled by expanding existing parts during final editorial pass*
+
