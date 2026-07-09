@@ -1,4 +1,4 @@
-﻿# ADD.md - Expansion Ideas
+# ADD.md - Expansion Ideas
 ## Target: 89,000 words (365+ pages)
 ## Rule: Every scene must carry a kick. No filler.
 
@@ -12,11 +12,13 @@ Theme: Power, humiliation, Indian political family entitlement
 The Kick:
 Prince Rathore, son of a local MLA, has the best shoes, the worst attitude, and a habit of comparing what he owns with what others cannot afford. Monsoon morning. Vicky's cheap canvas shoes disintegrate in a puddle near the college gate. Prince makes a comment. The whole corridor hears.
 
-That afternoon: a PCR van parks outside the hostel. The SHO himself carries a box to the door. Inside: one pair of good leather shoes, sent by Inspector Ahuja of Bhubaneswar police - Vikram's uncle - who heard from someone who heard from someone.
+Background (for the writer): Vicky is new to hostel life. He would never go buy shoes for himself alone — doesn't know the market, doesn't want to make a fuss. His papa (Binay Ahuja) somehow hears about it — maybe a phone call from Vicky mentioning the rain, maybe from someone in the hostel admin who knows the family. Binay doesn't fuss either. He simply calls the local SHO, who is a good contact of his.
+
+That afternoon: a PCR van parks outside the hostel. The SHO himself carries a box to the door. Inside: one pair of good leather shoes — sent by Vicky's papa, delivered via the SHO, who heard from the papa, who heard from someone who heard from someone. No drama. Just a box.
 
 Prince never mentions footwear again. Not in front of Vicky. Not in front of anyone who might mention it to Vicky.
 
-Emotional weight: Vikram doesn't fully understand what happened. He just wears the shoes. Adarsh, who watched the whole thing from the corridor, decides at that exact moment that this is his favorite person.
+Emotional weight: Vikram doesn't fully understand the chain behind the shoes. He just wears them. Adarsh, who watched the whole thing from the corridor railing, decides at that exact moment that this is his favorite person — not because of the shoes, but because Vicky accepted them without asking a single question about how they arrived.
 
 ---
 
